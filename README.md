@@ -1,1 +1,0 @@
-# sprint-strategists-all-project
